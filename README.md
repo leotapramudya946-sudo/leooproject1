@@ -1,2 +1,0 @@
-# leooproject1
-tesbelajar
